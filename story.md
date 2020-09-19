@@ -57,10 +57,13 @@ I doubt that she would like a guy like me...
 I have annoyed her multiple of times and given her dozens of montone replies to her texts. 
 But she will not return my feelings back anyways... 
 At least I got to talk to her and hear her voice one more time before the day ends.
+Will confessing ruin our friendship?
 Wait, I was going to do something, what was it, what was it... 
 Right, I have to ask Jessica if Renee likes me back. 
 I am pretty sure she will say that Renee does not like me back. 
 Tomorrow, I will meet up with Jessica, buy her a matcha cake and ask her the question. 
+What if Renee sees us and gets the wrong idea?
+I hope not.
 I am so nervous... Wish me luck. 
 
 *Renee POV* 
